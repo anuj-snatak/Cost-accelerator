@@ -1,4 +1,4 @@
-# 🚀 New Approaches - Kya Kar Sakte Ho
+# New Approaches 
 
 ## Overview
 
